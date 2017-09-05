@@ -1,1 +1,0 @@
-# KonradRWright.github.io
